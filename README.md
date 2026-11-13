@@ -53,7 +53,7 @@ I'm constantly working on new ideas and experimenting with different technologie
 
 ### Connect
 
-GitHub: [@Mintix](https://github.com/Mintix)
+GitHub: [@Mintix](https://github.com/Mintixx)
 
 ---
 
